@@ -1,1 +1,21 @@
-# Projetos-Leonel-
+**BEM VINDOS AO MEU PERFIL**
+
+
+
+MEU NOME É CARLOS HENRIQUE 
+
+- ESTOU ESTUDANDO NA ALURA 
+- ESTOU ME DESENVOLVENDO NA LINGUAGEM JAVASCRIPT
+- UTILIZO ESSE ESPAÇO PARA MINHA ORGANIZAÇÃO E COMPARTILHAMENTO DOS MEUS PROJETOS 
+
+
+
+**VOCÊ PODE ENTRAR EM CONTATO COMIGO**
+
+**Gmail**
+c.alcantara@escola.pr.gov.br
+
+**Instagram**
+carlos_kiq
+
+![](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExbGF0b2ZidDZkbTFtcW44YWkxMnk2dzZheDV0cW90b2x5aTc0OWszZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/fmMdxlVwsCmTtA4V6a/giphy.webp)
